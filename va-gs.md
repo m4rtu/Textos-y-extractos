@@ -1,3 +1,24 @@
+Desde hace ya meses, el debate sobre la gestación subrogada o los vientre de alquiler esta en auge. Bueno, desde hace ya unos años se viene hablando sobre este tema, pero por primera vez los partidos politicos se han decidido a posicinarse de alguna manera, mas o menos claramente o con mas o menos cautela. Quizs la reciente proposición de Ciudadanos en el congreso haya hecho que el resto de partidos sean preguntados y requeridos para tener una posición más clara o explicita con el tema. 
+
+Esos si, parece que ms que nunca el debate esta en la calle y en los medios de comunicación. Pero, ¿Qué debate? Lo más comun es hablar de si estar "a favor" o "en contra" de la gestación subrogada, como práctica en sí. Pero, ¿cualquier gestación subrogada? ¿de cualquier manera? porque hay bastantes diferencias, muchas, con implicaciones micro y macro muy diferentes. Por ejemplo, no es lo mismo la gestación subrogada por x dinero pactado en el mercado libremente, que que se pague un salario como en cualquier trabajo, con su base reguladora, sus plus por riesgos, nocturnidad, con su cotización y su seguridad social. Asi como que no es lo mismo la gestacion subrogada realizada altruistamente 100% donde se garantiza que no hay nada de dinero de por medio, que que se pague una compensación "peque" por las molestias, que no incentive a hacerlo por dinero (en teoria) y se siga considerando altruismo. Existen avismos entre una y otras fórmulas, que afectarian al mercado y a las mujeres (potenciales) gestantes de forma muy diferente. En cambio, el debate en los medios y en muchas calles se sigue centrando solo en prohibir o regural (sea cual sea esa regulación).
+
+Creo que la propuesta de Bildu es un intento de poner sobre la mesa de qué segulaciones podriamos estar hablando y posicionarse por un modelo en concreto y rechazr otros.
+
+
+
+
+
+----------------------------------------------------
+
+
+Es como estar en contra o favor de la transferencia de organos y hay muchas maneras de hacerlo, por compra-venta de organos en el mercado negro, por donación, por donación con una compensación
+
+
+
+
+
+
+
 Sintesis mesa redonda sonbre gestación subrogada / vientres de alquiler
 
 1) introducción al contexto de las bioeconomias de la reproducción: Sara
